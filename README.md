@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JustNillusion
 - 👀 I’m interested in ...Light Art and Music
 - 🌱 I’m currently learning ...how to make Web 3.0 websites
-- 📫 How to reach me ... justnillusionstudios@gmail.com 
+- 📫 How to reach me ... justnillusionstudios@gmail.com for now.
 - Here we what happens whe I do this
 
 
